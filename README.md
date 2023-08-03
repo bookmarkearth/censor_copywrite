@@ -7,7 +7,7 @@
 
 #### 百度网盘
 
-链接: https://pan.baidu.com/s/1RH17Pr1bJ8K4BW2vtAkNjg?pwd=ix5d 提取码: ix5d 复制这段内容后打开百度网盘手机App，操作更方便哦
+链接: https://pan.baidu.com/s/1RH17Pr1bJ8K4BW2vtAkNjg?pwd=ix5d 提取码: ix5d
 
 #### 蓝奏云
 
